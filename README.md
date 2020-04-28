@@ -1,1 +1,0 @@
-# sebihiy.github.io
